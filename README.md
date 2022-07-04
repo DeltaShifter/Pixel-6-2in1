@@ -1,1 +1,1 @@
-# Pixel-6-2in1
+# Pixel6-CT-2in1
